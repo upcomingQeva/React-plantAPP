@@ -1,1 +1,1 @@
-# React-plantAPP
+# React-plantAPP 🌷 🌼 ☘️
